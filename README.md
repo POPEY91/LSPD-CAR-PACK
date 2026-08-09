@@ -11,3 +11,4 @@ More info on Discord!
 https://popeyshop.com
 
 
+<img width="1920" height="1080" alt="Sans titre" src="https://github.com/user-attachments/assets/511796f9-3ee1-41be-9189-994eb6bf7b0f" />
